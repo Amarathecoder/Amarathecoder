@@ -1,6 +1,5 @@
 # Hi there, I'm [Amara Ekwugha]! 👋
 
-![Banner Image](https://images.app.goo.gl/KTxu3DbRzV3K7Jas6)
 
 ## About Me 🚀
 
